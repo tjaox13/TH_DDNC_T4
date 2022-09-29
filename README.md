@@ -1,0 +1,1 @@
+![IMG](/assets/Lab_3.PNG)
